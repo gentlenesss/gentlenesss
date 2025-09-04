@@ -7,7 +7,7 @@
 <p align="center">
   <a href="https://whatsurnamegirlfriend.atabook.org/" target="_blank">ata book</a> 
 
-  <p align="center">i like tf2, rdr, clarence, tawog, silent hill, cry of fear, afraid of monsters, diary of a wimpy kid, animal crossing wild world, frank ocean, odd future, don't starve, samorost 
+  <p align="center">i like tf2, rdr, clarence, tawog, silent hill, cry of fear, afraid of monsters, diary of a wimpy kid, animal crossing wild world, frank ocean, odd future, don't starve, samorost, spiderman into/across the spiderverse, toro inoue and friends, 
 
 
 
