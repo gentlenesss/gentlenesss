@@ -6,29 +6,31 @@
 <p align="center"> apagender <img width="20" height="20" alt="image" src="https://64.media.tumblr.com/a795ffa4138e4850a76d46e605ba7d8b/992b39b6ab3235eb-3e/s75x75_c1/848cf06fe24acf5a341ea88bbf538013089d2cc1.webp" /> any pronouns and 𝘁𝗲𝗿𝗺𝘀 
 <p align="center"> ✿ ro/eng ok! ◟♯ . / 
 
+<div align="center">
 
-<p align="center">
-<details style="display: inline-block; margin-right: 20px;">
-  <summary><b>1. BYF</b></summary>
-  - be respectful  
-  - i tweet a lot  
-  - sometimes use tone tags
-</details>
+  <details style="display: inline-block; margin: 10px;">
+    <summary><b>💬 BYF</b></summary>
+    - be respectful<br>
+    - i tweet a lot<br>
+    - sometimes use tone tags
+  </details>
 
-<details style="display: inline-block; margin-right: 20px;">
-  <summary><b>2. DNI</b></summary>
-  - racist / homophobic  
-  - transphobic  
-  - proship / basic dni
-</details>
+  <details style="display: inline-block; margin: 10px;">
+    <summary><b>🚫 DNI</b></summary>
+    - racist / homophobic<br>
+    - transphobic<br>
+    - proship / basic dni
+  </details>
 
-<details style="display: inline-block;">
-  <summary><b>3. Interests</b></summary>
-  - digital art  
-  - vocaloid  
-  - rhythm games  
-  - anime / manga
-</details>
+  <details style="display: inline-block; margin: 10px;">
+    <summary><b>⭐ Interests</b></summary>
+    - digital art<br>
+    - vocaloid<br>
+    - rhythm games<br>
+    - anime / manga
+  </details>
+
+</div>
 
 
 
