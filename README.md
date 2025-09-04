@@ -4,6 +4,7 @@
 <p align="center">
 𝘆𝗲𝗻𝗶! ⊱ ۫ ׅ ✧ minor .
 <img width="20" height="20" alt="image" src="https://64.media.tumblr.com/a795ffa4138e4850a76d46e605ba7d8b/992b39b6ab3235eb-3e/s75x75_c1/848cf06fe24acf5a341ea88bbf538013089d2cc1.webp" /> any pronouns
+<p align="center"> ok
 
 
 
