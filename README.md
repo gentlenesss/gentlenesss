@@ -10,17 +10,17 @@
 
   <details style="display: inline-block; margin: 10px;">
     <summary><b>✶ byf</b></summary>
-    - be respectful<br>
-    - i tweet a lot<br>
-    - sometimes use tone tags
+    - 
+    - 
+    - 
   </details>
 
   <details style="display: inline-block; margin: 10px;">
     <summary><b>✶ dnfi</b></summary>
-    you're racist, homophobic, transphobic, a darkshipper.
-    you support problematic people, make child porn, zoophiliac or rape jokes
-    you're "rage bait"
-    
+   - you're racist, homophobic, transphobic, a darkshipper.
+   - you support problematic people, make child porn, zoophiliac or rape jokes
+   - you're "rage bait"
+   - you don't respect boundaries 
   </details>
 
   <details style="display: inline-block; margin: 10px;">
