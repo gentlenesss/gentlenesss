@@ -1,6 +1,7 @@
 ## ⋆˙⟡
 <p align="center">
-<img width="577" height="433" alt="image" src="https://github.com/user-attachments/assets/f503b8e8-c5ac-459e-9edb-351fa79230ce" />
+<img width="640" height="640" alt="image" src="https://i.pinimg.com/originals/00/08/7f/00087fa5494ad20c3733060e829b54c2.gif" />
+
 
 
 
