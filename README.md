@@ -1,6 +1,6 @@
 ## ⋆˙⟡
 <p align="center">
-<img width="500" height="500" alt="image" src="https://i.pinimg.com/1200x/30/dd/b5/30ddb5bb641ba9c2b66bd842fa08f2ed.jpg" />
+<img width="500" height="500" alt="image" src="https://i.pinimg.com/736x/9b/24/b5/9b24b59f0c27ec498ad7a2c9732f4b4d.jpg" />
 
 
 
