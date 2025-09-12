@@ -7,7 +7,7 @@ never be afraid to interact with me! i'm friendly, company is always welcome! (.
 i like to joke around a lot! i might be awkward at first, and also i have moments where i don't talk at all.. not because i hate you; i just don't know what to say or i'm busy. (ᵕ—ᴗ—) **C+H** is always allowed, you can also cover me if you want to! i alos have to mention that i can get overwhelmed easily, i'll announce if it happens!
 
 ### ⤷ ゛ interests ˎˊ 
-**bold** = heavyily into 
+-**bold** = heavyily into 
 **tf2**, **invincible**, rdr, animal crossing wild world, apple and onion, mlp, **silent hill**, cry of fear, afraid of monsters, 
 
 <div align="center">
