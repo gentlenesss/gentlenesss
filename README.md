@@ -1,7 +1,15 @@
 # ⋆˙⟡
 ### ⤷ ゛ about me ˎˊ˗
-call me **Yeni!** I'm a minor, from Romania and also I'm apagender; meaning you can use any pronouns and terms when you're refering to me! ^u^
-never be afraid to interact with me! i'm friendly, company is always welcome! <img width="50" height="50" alt="image" src="https://blob.gifcities.org/gifcities/ALZISXEUG2HODBIKHFGL524NNWHP2SFO.gif" />
+call me **Yeni!** I'm a minor, from Romania & also I'm apagender; meaning you can use **any pronouns** and **terms** whenever you're refering to me! ^u^
+never be afraid to interact with me! i'm friendly, company is always welcome! (..◜ᴗ◝..)
+
+### ⤷ ゛ byi ˎˊ
+i like to joke around a lot! i might be awkward at first, and also i have moments where i don't talk at all.. not because i hate you; i just don't know what to say or i'm busy. (ᵕ—ᴗ—) **C+H** is always allowed, you can also cover me if you want to!
+
+### ⤷ ゛ interests ˎˊ 
+**bold** = heavyily into 
+**tf2**, **invincible**, rdr, animal crossing wild world, apple and onion, mlp, **silent hill**, cry of fear, afraid of monsters, 
+
 
 
 
