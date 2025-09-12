@@ -11,7 +11,7 @@ i like to joke around a lot! i might be awkward at first, and also i have moment
 **tf2**, **invincible**, rdr, animal crossing wild world, apple and onion, mlp, **silent hill**, cry of fear, afraid of monsters, 
 
 <div align="center">
-<img width="736" height="672" alt="image" src="https://github.com/user-attachments/assets/02701870-ff4a-4b03-8e95-0d9684e5f26b" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/02701870-ff4a-4b03-8e95-0d9684e5f26b" />
 
 
 
