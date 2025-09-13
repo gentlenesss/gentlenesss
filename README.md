@@ -1,6 +1,6 @@
 # ⋆˙⟡
 <div align="center">
-  <img width="804" height="104" alt="image" src="https://github.com/user-attachments/assets/ac11b17a-d3af-4da9-b744-455458528860" />
+  <img width="900" height="70" alt="image" src="https://github.com/user-attachments/assets/ee6012cf-7bae-455a-a837-c314aeb10c6a" />
 <div align="center">
 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒
   <div align="center">
