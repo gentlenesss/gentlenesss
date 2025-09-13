@@ -6,14 +6,13 @@
     <p align="center">
       ‎‎ ‎ ‎ ︵ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ cuddle me whenever! ‎ ‎‎ ‎ ‎ . ‎‎ ‎ ‎ ‎ ‎ or cover me, ‎‎ ‎ ‎ idm ‎‎ ‎ ‎ ◞ ‎‎ ‎ ‎ w2i if ‎‎ ‎ ‎ i'm ‎‎ ‎ ‎ offtab otherwise, i might not see ur message, sorry! ‎‎ ✶ ‎ i'm always open for interaction, therefore ‎ 𓎟𓎟‎‎ ‎  never be afraid to  ‎ ‎‎ ‎ int with me or ‎ ‎‎︶︶ ‎  sit with me!! ‎ ‎‎ ‎.  
 <p align="center">
-  <a href="https://whatsurnamegirlfriend.atabook.org/">
-    <img src="https://img.shields.io/badge/atabook-e0d8bf?style=for-the-badge&labelColor=000000&logo=bookstack&logoColor=black" alt="atabook" />
+  <a href="https://whatsurnamegirlfriend.atabook.org/" style="text-decoration: none;">
+    <img src="https://img.shields.io/static/v1?label=&message=atabook&color=e0d8bf&style=for-the-badge" alt="atabook" />
   </a>
-  <a href="https://theoceanswaveshealmysoul.carrd.co/">
-    <img src="https://img.shields.io/badge/carrd-e0d8bf?style=for-the-badge&labelColor=000000&logo=internetexplorer&logoColor=black" alt="carrd" />
+  <a href="https://theoceanswaveshealmysoul.carrd.co/" style="text-decoration: none;">
+    <img src="https://img.shields.io/static/v1?label=&message=carrd&color=e0d8bf&style=for-the-badge" alt="carrd" />
   </a>
 </p>
-
 
 
 
