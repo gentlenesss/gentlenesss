@@ -1,6 +1,6 @@
 # ⋆˙⟡
 <div align="center">
-  <img width="904" height="104" alt="image" src="https://github.com/user-attachments/assets/ac11b17a-d3af-4da9-b744-455458528860" />
+  <img width="804" height="104" alt="image" src="https://github.com/user-attachments/assets/ac11b17a-d3af-4da9-b744-455458528860" />
 <div align="center">
 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒
   <div align="center">
@@ -12,7 +12,7 @@
   <a href="https://theoceanswaveshealmysoul.carrd.co/">car</a>rd
 </p>
 <div align="center">
-<img width="904" height="104" alt="image" src="https://github.com/user-attachments/assets/43adb467-b064-4d7a-bc7f-83ac0d96b06d" />
+<img width="804" height="104" alt="image" src="https://github.com/user-attachments/assets/43adb467-b064-4d7a-bc7f-83ac0d96b06d" />
 
 
 
