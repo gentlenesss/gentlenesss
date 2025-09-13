@@ -7,13 +7,12 @@
       ‎‎ ‎ ‎ ︵ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ cuddle me whenever! ‎ ‎‎ ‎ ‎ . ‎‎ ‎ ‎ ‎ ‎ or cover me, ‎‎ ‎ ‎ idm ‎‎ ‎ ‎ ◞ ‎‎ ‎ ‎ w2i if ‎‎ ‎ ‎ i'm ‎‎ ‎ ‎ offtab otherwise, i might not see ur message, sorry! ‎‎ ✶ ‎ i'm always open for interaction, therefore ‎ 𓎟𓎟‎‎ ‎  never be afraid to  ‎ ‎‎ ‎ int with me or ‎ ‎‎︶︶ ‎  sit with me!! ‎ ‎‎ ‎.  
 <p align="center">
   <a href="https://whatsurnamegirlfriend.atabook.org/">
-    <img src="assets/buttons/atabook-button.svg" alt="atabook" height="50" />
+    <img src="https://yourdomain.com/atabook.png" alt="atabook" height="50" />
   </a>
   <a href="https://theoceanswaveshealmysoul.carrd.co/">
-    <img src="assets/buttons/carrd-button.svg" alt="carrd" height="50" />
+    <img src="https://yourdomain.com/carrd.png" alt="carrd" height="50" />
   </a>
 </p>
-
 
 
 
