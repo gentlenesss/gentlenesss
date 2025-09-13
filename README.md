@@ -1,8 +1,9 @@
 # ⋆˙⟡
 <div align="center">
 hi, thanks for visiting! (⸝⸝ᵕᴗᵕ⸝⸝)
-<div align="center">
-<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/02701870-ff4a-4b03-8e95-0d9684e5f26b" />
+  <div align="center">
+<img width="500" height="266" alt="image" src="https://i.pinimg.com/originals/a1/1c/ff/a11cffa9b0fceaaaf022c79921c2f8c4.gif" />
+
 
 
 
