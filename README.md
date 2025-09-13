@@ -12,7 +12,7 @@
   <a href="https://theoceanswaveshealmysoul.carrd.co/">car</a>rd
 </p>
 <div align="center">
-<img width="600" height="70" alt="image" src="https://github.com/user-attachments/assets/8e0171e1-f4f3-4328-932e-738ebb4f5f45" />
+<img width="800" height="70" alt="image" src="https://github.com/user-attachments/assets/8e0171e1-f4f3-4328-932e-738ebb4f5f45" />
 
 
 
