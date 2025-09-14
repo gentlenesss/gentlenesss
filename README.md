@@ -1,6 +1,5 @@
 # ⋆˙⟡
-<div align="center">
-  <img width="900" height="70" alt="image" src="https://github.com/user-attachments/assets/788bb9b5-5967-4e33-816d-b541ab2a110d" />
+
 
 <div align="center">
 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒
@@ -12,8 +11,7 @@
   <a href="https://whatsurnamegirlfriend.atabook.org/">ata</a>book .
   <a href="https://theoceanswaveshealmysoul.carrd.co/">car</a>rd
 </p>
-<div align="center">
-<img width="900" height="70" alt="image" src="https://64.media.tumblr.com/296abbda4df0f747dcebe5ba0d0ee4c4/9b360b95216ccc4d-c5/s640x960/dbf064e8cafd4e34367990091a883dd826285892.pnj" />
+
 
 
 
