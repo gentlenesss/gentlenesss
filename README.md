@@ -11,7 +11,8 @@
   <a href="https://whatsurnamegirlfriend.atabook.org/">ata</a>book .
   <a href="https://theoceanswaveshealmysoul.carrd.co/">car</a>rd
 </p>
-
+    <p align="center">
+<gif width="220" height="220" alt="image" src="https://i.pinimg.com/originals/99/e4/df/99e4dfe40fcc342649e49a716ce153e4.gif" />
 
 
 
