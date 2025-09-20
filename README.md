@@ -4,7 +4,7 @@
 <div align="center">
 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒
   <div align="center">
-<img width="500" height="281" alt="image" src="https://media.discordapp.net/attachments/1406201432738365532/1418902238415290500/7a63d4c91a83613b8088c9cde3f3ceaf_2.gif?ex=68cfcf2f&is=68ce7daf&hm=548613126a2acff3ef97904e7c22de5a6454ab01bece27f1a81799063bc85f37&=&width=750&height=422" />
+<img width="400" height="225" alt="image" src="https://i.pinimg.com/originals/f2/b6/79/f2b67984915dcf63cc12ffc5074637bd.gif" />
     <p align="center">
       ‎‎ ‎ ‎ ︵ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ cuddle me whenever! ‎ ‎‎ ‎ ‎ <img width="21" height="21" alt="image" src="https://64.media.tumblr.com/665117f3862e5c0b7ae6ba00f9a1ebac/0267cbb62ed7e3e6-df/s75x75_c1/537115ad36bc8406108d9a3727ee249a14a3d432.gifv" />
  ‎‎ ‎ ‎ ‎ ‎ or cover me, ‎‎ ‎ ‎ idm ‎‎ ‎ ‎ <img width="20" height="20" alt="image" src="https://64.media.tumblr.com/103e73d85e63afe1d9f2a6365f618089/0267cbb62ed7e3e6-5b/s75x75_c1/348b00ba20e15b7f7aaeb6043e40de8d6a939b74.gifv" /> 
