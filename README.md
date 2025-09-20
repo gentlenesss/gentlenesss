@@ -13,7 +13,7 @@
       <div align="center">
      ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
         <div align="center">
-<img width="100" height="100" alt="image" src="https://media.discordapp.net/attachments/1406201432738365532/1418981423519367361/Untitled59_20250920181316.png?ex=68d018ee&is=68cec76e&hm=8eb4557f04094d2d239ffe9d73296f3e3e0c9718b5be9786eed3478384909201&=&format=webp&quality=lossless&width=1848&height=617" />
+<img width="210" height="210" alt="image" src="https://media.discordapp.net/attachments/1406201432738365532/1418981423519367361/Untitled59_20250920181316.png?ex=68d018ee&is=68cec76e&hm=8eb4557f04094d2d239ffe9d73296f3e3e0c9718b5be9786eed3478384909201&=&format=webp&quality=lossless&width=1848&height=617" />
 <p align="center">
   <a href="https://whatsurnamegirlfriend.atabook.org/">ata</a>book .
   <a href="https://theoceanswaveshealmysoul.carrd.co/">car</a>rd
