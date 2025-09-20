@@ -4,9 +4,10 @@
 <div align="center">
 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒
   <div align="center">
-<img width="400" height="400" alt="image" src="https://media.discordapp.net/attachments/1406201432738365532/1418568196281208902/Untitled55_20250919150056.png?ex=68ce9815&is=68cd4695&hm=f189879900640082f098e42c2c41907d435f85853228f646b6be51d85b3af874&=&format=webp&quality=lossless&width=680&height=680" />
+<img width="1800" height="800" alt="image" src="https://media.discordapp.net/attachments/1406201432738365532/1418568195987603596/Untitled56_20250919150237.png?ex=68cf40d5&is=68cdef55&hm=70d99c9758925c059cd8514e206d53833cac416744dc00b91ced75f95b9a6bad&=&format=webp&quality=lossless&width=1692&height=564" />
     <p align="center">
-      ‎‎ ‎ ‎ ︵ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ cuddle me whenever! ‎ ‎‎ ‎ ‎ . ‎‎ ‎ ‎ ‎ ‎ or cover me, ‎‎ ‎ ‎ idm ‎‎ ‎ ‎ ◞ ‎‎ ‎ ‎ w2i when ‎‎ ‎ ‎ i'm ‎‎ ‎ ‎ offtab  ‎ ‎ﾒ ‎‎ ‎ otherwise, i might not see ur message, sorry! ‎‎ ✶ ‎ i'm always open for interaction ╰ therefore ‎ ,‎‎ ‎  never be afraid to  ‎ ‎‎ ‎ int with me or ‎ ‎‎︶︶ ‎  sit with me!! ‎ ‎‎ ‎.  𓎟𓎟
+      ‎‎ ‎ ‎ ︵ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ cuddle me whenever! ‎ ‎‎ ‎ ‎ <img width="21" height="21" alt="image" src="https://64.media.tumblr.com/665117f3862e5c0b7ae6ba00f9a1ebac/0267cbb62ed7e3e6-df/s75x75_c1/537115ad36bc8406108d9a3727ee249a14a3d432.gifv" />
+ ‎‎ ‎ ‎ ‎ ‎ or cover me, ‎‎ ‎ ‎ idm ‎‎ ‎ ‎ ◞ ‎‎ ‎ ‎ w2i when ‎‎ ‎ ‎ i'm ‎‎ ‎ ‎ offtab  ‎ ‎ﾒ ‎‎ ‎ otherwise, i might not see ur message, sorry! ‎‎ ✶ ‎ i'm always open for interaction ╰ therefore ‎ ,‎‎ ‎  never be afraid to  ‎ ‎‎ ‎ int with me or ‎ ‎‎︶︶ ‎  sit with me!! ‎ ‎‎ ‎.  𓎟𓎟
 <p align="center">
   <a href="https://whatsurnamegirlfriend.atabook.org/">ata</a>book .
   <a href="https://theoceanswaveshealmysoul.carrd.co/">car</a>rd
