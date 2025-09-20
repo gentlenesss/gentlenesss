@@ -3,7 +3,7 @@
 <div align="center">
 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒
   <div align="center">
-<img width="1500" height="500" alt="image" src="https://github.com/user-attachments/assets/0ff50f7e-2280-485a-9327-45c8114bda97" />
+<img width="1500" height="500" alt="image" src="https://github.com/user-attachments/assets/6a97c275-fa8a-42e3-a0ef-f8333afb3511" />
 
 <div align="center">
       ‎‎ ‎ ‎ ︵ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ cuddle me whenever! ‎ ‎‎ ‎ ‎ <img width="21" height="21" alt="image" src="https://64.media.tumblr.com/665117f3862e5c0b7ae6ba00f9a1ebac/0267cbb62ed7e3e6-df/s75x75_c1/537115ad36bc8406108d9a3727ee249a14a3d432.gifv" />
