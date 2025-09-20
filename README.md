@@ -10,7 +10,7 @@
  ‎‎ ‎ ‎ ‎ ‎ or cover me, ‎‎ ‎ ‎ idm ‎‎ ‎ ‎ <img width="20" height="20" alt="image" src="https://64.media.tumblr.com/103e73d85e63afe1d9f2a6365f618089/0267cbb62ed7e3e6-5b/s75x75_c1/348b00ba20e15b7f7aaeb6043e40de8d6a939b74.gifv" /> 
 ◞ ‎‎ ‎ ‎ w2i when ‎‎ ‎ ‎ i'm ‎‎ ‎on ‎ ⛔  ‎ ‎ﾒ ‎‎ ‎ otherwise, i might not see ur message, sorry! ‎‎ ✶ ‎ i'm always open for interaction ╰ therefore ‎ ,‎‎ ‎  never be afraid to  ‎ ‎‎ ‎ int with me or ‎ ‎‎︶︶ ‎  sit with me!! ‎ ‎‎ ‎.  𓎟𓎟
       <div align="center">
-      <img width="600" height="600" alt="image" src="https://64.media.tumblr.com/b042459c2caa5ac29c5d91caca870df7/9b360b95216ccc4d-93/s1280x1920/051313e19ca9b1ba7633871b360da8f481e2f5b9.pnj" />
+     ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 
 <p align="center">
   <a href="https://whatsurnamegirlfriend.atabook.org/">ata</a>book .
