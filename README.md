@@ -1,10 +1,9 @@
 # ⋆˙⟡
 
-
 <div align="center">
 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒
   <div align="center">
-<img width="400" height="225" alt="image" src="https://i.pinimg.com/originals/f2/b6/79/f2b67984915dcf63cc12ffc5074637bd.gif" />
+<img width="368" height="272" alt="image" src="https://i.pinimg.com/originals/bd/9f/30/bd9f309507a440b30e1f63b73b5b8549.gif" />
     <p align="center">
       ‎‎ ‎ ‎ ︵ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ cuddle me whenever! ‎ ‎‎ ‎ ‎ <img width="21" height="21" alt="image" src="https://64.media.tumblr.com/665117f3862e5c0b7ae6ba00f9a1ebac/0267cbb62ed7e3e6-df/s75x75_c1/537115ad36bc8406108d9a3727ee249a14a3d432.gifv" />
  ‎‎ ‎ ‎ ‎ ‎ or cover me, ‎‎ ‎ ‎ idm ‎‎ ‎ ‎ <img width="20" height="20" alt="image" src="https://64.media.tumblr.com/103e73d85e63afe1d9f2a6365f618089/0267cbb62ed7e3e6-5b/s75x75_c1/348b00ba20e15b7f7aaeb6043e40de8d6a939b74.gifv" /> 
