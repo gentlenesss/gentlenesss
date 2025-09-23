@@ -5,7 +5,7 @@
 <p align="center">
 <img width="300" height="300" alt="gif" src="https://i.pinimg.com/originals/99/e4/df/99e4dfe40fcc342649e49a716ce153e4.gif" />
 <p align="center">
-‿‿ ‎ ‎ ‎ ‎ ‎ cuddle/cover me whenever ‎ ‎ , ‎ ‎ ‎ ‎ ‎ ‎ unless stated otherwise!! .  ‎ ‎ ‎ ‎ ‎  𓄲‎ ‎ .  ‎‎ ⋆˚࿔ ‎ ‎ ‎ 🌙 -  ‎ ‎ ‎ ‎ ‎ ‎afk  ‎ ‎ ‎ ‎  ‎ ‎or   ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎offtab‎ ‎‎ ‎ ‎ ‎ ‎, ‎ ‎ ‎ ‎‎ whisper byi! ‎ ‎ ‎ ‎<img width="21" height="21" alt="image" src="https://64.media.tumblr.com/665117f3862e5c0b7ae6ba00f9a1ebac/0267cbb62ed7e3e6-df/s75x75_c1/537115ad36bc8406108d9a3727ee249a14a3d432.gifv" />‎ ‎ ‎ ‎ ‎✶ ‎ ‎. ‎ ‎ 𓎟𓎟 always open for interaction !!  ◟‎ ‎ ‎ ‎ ‎︵  ‎ ‎ ‎ ‎ ‎never be afraid to ‎ ‎ int ‎ ‎ with me ‎ ‎ ノ ‎  sit ‎ ‎ with me ๑
+‿‿ ‎ ‎ ‎ ‎ ‎ cuddle/cover me whenever ‎ ‎ , ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  𓄲‎ ‎ .  ‎‎ ⋆˚࿔ ‎ ‎ ‎ 🌙 -  ‎ ‎ ‎ ‎ ‎ ‎afk  ‎ ‎ ‎ ‎  ‎ ‎or   ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎offtab‎ ‎‎ ‎ ‎ ‎ ‎, ‎ ‎ ‎ ‎‎ whisper byi! ‎ ‎ ‎ ‎<img width="21" height="21" alt="image" src="https://64.media.tumblr.com/665117f3862e5c0b7ae6ba00f9a1ebac/0267cbb62ed7e3e6-df/s75x75_c1/537115ad36bc8406108d9a3727ee249a14a3d432.gifv" />‎ ‎ ‎ ‎ ‎✶ ‎ ‎. ‎ ‎ 𓎟𓎟 always open for interaction !!  ◟‎ ‎ ‎ ‎ ‎︵  ‎ ‎ ‎ ‎ ‎never be afraid to ‎ ‎ int ‎ ‎ with me ‎ ‎ ノ ‎  sit ‎ ‎ with me ๑
 <div align="center">
    ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ 
       <div align="center">
