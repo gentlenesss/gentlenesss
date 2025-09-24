@@ -13,6 +13,8 @@
   <a href="https://whatsurnamegirlfriend.atabook.org/">𝗮𝘁𝗮</a>book .
   <a href="https://theoceanswaveshealmysoul.carrd.co/">𝗰𝗮𝗿</a>rd
 </p>
+<p align="center">
+<img width="1500" height="500" alt="image" src="https://media.discordapp.net/attachments/1406201432738365532/1420430659301937242/Untitled68_20250924181722.png?ex=68d55ea3&is=68d40d23&hm=109a15bdcdb0ce505dfd668b7e050231c39748140cbb9393d0e81152a2541fd4&=&format=webp&quality=lossless&width=960&height=320" />
     
 
 
