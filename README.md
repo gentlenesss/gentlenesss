@@ -6,8 +6,8 @@
 ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
 <p align="center">
 <img width="700" height="722" alt="image" src="https://media.discordapp.net/attachments/1406201432738365532/1420433114173280287/Untitled71_20250924183211.png?ex=68d560ec&is=68d40f6c&hm=845ca3a026702090d1ba12d659bcf572a66bc0e8c54fc6a0bba712f8465a01cc&=&format=webp&quality=lossless&width=1104&height=722" />
-
-
+<p align="center">
+<img width="350" height="270" alt="image" src="https://i.pinimg.com/originals/99/e4/df/99e4dfe40fcc342649e49a716ce153e4.gif" />
 
 <p align="center">
   <a href="https://whatsurnamegirlfriend.atabook.org/">𝗮𝘁𝗮</a>book .
