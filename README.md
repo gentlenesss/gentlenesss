@@ -9,7 +9,7 @@
 <p align="center">
 <img width="350" height="270" alt="image" src="https://i.pinimg.com/originals/99/e4/df/99e4dfe40fcc342649e49a716ce153e4.gif" />
   <p align="center">
-◞‎ ‎ ‎ ‎ ‎  ‎ ‎cuddle/cover ‎ ‎ ‎ ‎ me‎ ‎  whenever  ‎ ‎.  ‎ ‎ ‎ ‎𓏏𓏏  ‎ ‎ ‎ ‎🌙 ‎ ‎ ‎ ‎- afk  ‎ ‎,  ‎ ‎ ‎ ‎offtab  ‎ ‎ ‎ ‎︵︵  ‎ ‎   ‎ ‎ w2i‎ ‎‎ ‎   usually  ‎ ‎ .  ‎ ‎ ‎ ‎ unless i'm online!!  ‎ ‎ ‎ 𓏲 ‎  ‎ ‎   ‎ ‎ always open for interaction never ‎ ‎ be ‎ ‎ afraid to ‎ ‎ int/sit ‎ ‎ with‎ ‎  me!!‎ ‎  ໒꒱‎   ‎ ‎   ‎ ‎   ‎ ‎   ‎ ‎ 
+◞‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎cuddle/cover ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ me‎ ‎‎ ‎ ‎ ‎   whenever‎ ‎ ‎ ‎   ‎ ‎. ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎𓏏𓏏  ‎‎ ‎ ‎ ‎  ‎ ‎ ‎🌙 ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎- afk  ‎‎ ‎ ‎ ‎  ‎,  ‎‎ ‎  ‎ ‎ ‎offtab  ‎ ‎ ‎ ‎︵︵  ‎ ‎ ‎ ‎   ‎ ‎ w2i‎ ‎‎ ‎   usually  ‎ ‎ .  ‎ ‎ ‎ ‎ unless i'm online!!  ‎ ‎ ‎ 𓏲 ‎  ‎ ‎   ‎ ‎ always open for interaction never ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ be ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  afraid to ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  int/sit ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ with‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  me!!‎ ‎  ໒꒱‎   ‎ ‎   ‎ ‎   ‎ ‎   ‎ ‎ 
 <p align="center">
   <a href="https://whatsurnamegirlfriend.atabook.org/">𝗮𝘁𝗮</a>book .
   <a href="https://theoceanswaveshealmysoul.carrd.co/">𝗰𝗮𝗿</a>rd
