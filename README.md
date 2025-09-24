@@ -1,11 +1,11 @@
 # ⋆˙⟡
 
-<div align="center">
-◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
 <p align="center">
 <img width="1500" height="500" alt="image" src="https://media.discordapp.net/attachments/1406201432738365532/1420430659016720535/Untitled68_20250924181711.png?ex=68d55ea3&is=68d40d23&hm=901e2321ad71a41c5df4c3594b6cfeee885342fb7a4799cfbb08604c0292f9d9&=&format=webp&quality=lossless&width=960&height=320" />
+  <div align="center">
+◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
 <p align="center">
-<img width="600" height="700" alt="image" src="https://github.com/user-attachments/assets/1d21cbcc-9654-4fa3-99cd-161f29dadd17" />
+<img width="1104" height="722" alt="image" src="https://media.discordapp.net/attachments/1406201432738365532/1420433114173280287/Untitled71_20250924183211.png?ex=68d560ec&is=68d40f6c&hm=845ca3a026702090d1ba12d659bcf572a66bc0e8c54fc6a0bba712f8465a01cc&=&format=webp&quality=lossless&width=1104&height=722" />
 
 
 
