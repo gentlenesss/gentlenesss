@@ -9,7 +9,7 @@
   <p align="center">
 ◞‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎cuddle/cover ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ me‎ ‎‎ ‎ ‎ ‎   whenever‎ ‎ ‎ ‎   ‎ ‎. ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎𓏏𓏏  ‎‎ ‎ ‎ ‎  ‎ ‎ ‎🌙 ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎- afk  ‎‎ ‎ ‎ ‎  ‎,  ‎‎ ‎  ‎ ‎ ‎offtab  ‎ ‎ ‎ ‎︵︵  ‎ ‎ ‎ ‎   ‎ ‎ w2i‎ ‎‎ ‎   usually  ‎ ‎ .  ‎ ‎ ‎ ‎ unless i'm online!!  ‎ ‎ ‎ 𓏲 ‎  ‎ ‎   ‎ ‎ always open for interaction ノ never ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ be ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  afraid to ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  int/sit ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ with‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  me!!‎ ‎  ໒꒱‎   ‎ ‎   ‎ ‎
 <p align="center">
-<img width="200" height="100" alt="image" src="https://media.discordapp.net/attachments/1406201432738365532/1418981423519367361/Untitled59_20250920181316.png?ex=68d4b62e&is=68d364ae&hm=95e290a621ee45e298e70d4f2410ae6aa995439005fd025bbe791266ec85181c&=&format=webp&quality=lossless&width=1848&height=617" />   ‎ ‎   ‎ ‎ 
+<img width="170" height="100" alt="image" src="https://media.discordapp.net/attachments/1406201432738365532/1418981423519367361/Untitled59_20250920181316.png?ex=68d4b62e&is=68d364ae&hm=95e290a621ee45e298e70d4f2410ae6aa995439005fd025bbe791266ec85181c&=&format=webp&quality=lossless&width=1848&height=617" />   ‎ ‎   ‎ ‎ 
 <p align="center">
   <a href="https://whatsurnamegirlfriend.atabook.org/">𝗮𝘁𝗮</a>book .
   <a href="https://theoceanswaveshealmysoul.carrd.co/">𝗰𝗮𝗿</a>rd
