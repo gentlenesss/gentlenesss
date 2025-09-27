@@ -9,8 +9,8 @@
 love to all of my green names! (˶ᵔ ᵕ ᵔ˶)
 <p align="center">
 <p align="center">
-  <a href="https://whatsurnamegirlfriend.atabook.org/" target="_blank">atabook</a> .
-  <a href="https://theoceanhealssouls.carrd.co/" target="_blank">carrd</a>
+  <a href="https://whatsurnamegirlfriend.atabook.org/" target="_blank">ata</a>book .
+  <a href="https://theoceanhealssouls.carrd.co/" target="_blank">car</a>rd
 </p>
 </p>
 
