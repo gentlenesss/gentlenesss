@@ -8,7 +8,7 @@
 <p align="center">
 ⌢⌢ ‎ ‎ ‎ . ‎ ‎ cuddle╱cover ‎ me ‎ whenever  〃 ‎ ‎ 𓎟𓎟 ‎ ‎ w2i‎  usually‎ ,‎  unles‎s i'm‎  online!‎  ‎ ‎ ‎ 、‎ ‎ ‎ ୨୧
 <p align="center">
-love to all of my green names! <img width="44" height="44" alt="image" src="https://cdn.discordapp.com/emojis/991192288044781650.gif?size=96&quality=lossless" />
+love to all of my green names! <img width="10" height="10" alt="image" src="https://cdn.discordapp.com/emojis/991192288044781650.gif?size=96&quality=lossless" />
 
 
 <p align="center">
