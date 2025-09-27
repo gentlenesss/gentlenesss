@@ -8,7 +8,7 @@
 <p align="center">
 ⌢⌢ ‎ ‎ ‎ . ‎ ‎ cuddle╱cover ‎ me ‎ whenever  〃 ‎ ‎ 𓎟𓎟 ‎ ‎ w2i‎  usually‎ ,‎  unles‎s i'm‎  online!‎  ‎ ‎ ‎ 、‎ ‎ ‎ ୨୧
 <p align="center">
-love to all of my green names! <img width="50" height="50" alt="image" src="https://64.media.tumblr.com/4cdf6bc82b83c4a0e09417f89d84f264/04eb9c80f56504d1-06/s75x75_c1/a6e105a8c136200a98fb58c17f96d9c35a8cab77.gifv" />
+love to all of my green names! <img width="44" height="44" alt="image" src="https://64.media.tumblr.com/4cdf6bc82b83c4a0e09417f89d84f264/04eb9c80f56504d1-06/s75x75_c1/a6e105a8c136200a98fb58c17f96d9c35a8cab77.gifv" />
 
 
 <p align="center">
