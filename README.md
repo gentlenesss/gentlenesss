@@ -13,7 +13,7 @@ love to all of my green names! <img width="40" height="40" alt="image" src="http
   <a href="https://whatsurnamegirlfriend.atabook.org/" target="_blank">ata</a>book .
   <a href="https://theoceanhealssouls.carrd.co/" target="_blank">car</a>rd
 <p align="center">
-<img width="2048" height="330" alt="image" src="https://github.com/user-attachments/assets/61bda506-1251-4e7c-877f-d96f3fc197b4" />
+<img width="2048" height="330" alt="image" src="https://64.media.tumblr.com/b8c2e2f9523e706a3c27656fc182d23c/d083df8da3513e0a-e5/s2048x3072/dea5e8658b68a53bc95b383a7fed8e20083fcb1a.pnj" />
 
 
 
