@@ -1,6 +1,6 @@
 # ⋆˙⟡
 <p align="center">
-<img width="2048" height="330" alt="image" src="https://64.media.tumblr.com/b921c466430f7aa6f4509d516769f345/d083df8da3513e0a-84/s2048x3072/896528946492d3bdb78f47ff85586d3af791bb65.pnj" />
+<img width="2048" height="330" alt="image" src="https://media.discordapp.net/attachments/1406201432738365532/1421468861919662242/50f01a01df880bb68ffa18304e3714cb-removebg-preview.png?ex=68d9258a&is=68d7d40a&hm=beb5d9a0ffef48e9ed3b80f6243c881e6a26121dfafeda2fb0fca7793cda25e4&=&format=webp&quality=lossless&width=684&height=693" />
 <p align="center">
 ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
 <p align="center">
