@@ -11,7 +11,7 @@
 love to all of my green names! <img width="40" height="40" alt="image" src="https://github.com/user-attachments/assets/3cf5195b-2745-415d-b0b3-cb3700ee0f51" />
 
 <p align="center">
-  <img width="150" height="20" alt="image" src="https://64.media.tumblr.com/16fe0b1940b781f4bc3e7b5b76fc3b6a/a8ab7cd365f55831-bc/s250x400/145d083effcb029fe1638b9407b92ecb91febc22.gifv" />
+  <img width="200" height="20" alt="image" src="https://64.media.tumblr.com/16fe0b1940b781f4bc3e7b5b76fc3b6a/a8ab7cd365f55831-bc/s250x400/145d083effcb029fe1638b9407b92ecb91febc22.gifv" />
 
 <p align="center">
   <a href="https://whatsurnamegirlfriend.atabook.org/" target="_blank">ata</a>book .
