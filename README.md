@@ -4,7 +4,7 @@
 <p align="center">
 ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
 <p align="center">
-<img width="200" height="200" alt="image" src="https://media.discordapp.net/attachments/1406201432738365532/1421468861290512486/afe0251ead2689bf5fa27e744ff2131c-removebg-preview.png?ex=68d9258a&is=68d7d40a&hm=5eea504b3a9b6e7e4efdf6fb41a5f5d44bcdc10624a6f2e0d30ff49a4512256b&=&format=webp&quality=lossless&width=684&height=693" />
+<img width="200" height="200" alt="image" src="https://media.discordapp.net/attachments/1406201432738365532/1421469835971264542/tuxpi.com.1758975142-removebg-preview.png?ex=68d92672&is=68d7d4f2&hm=2b0b9a451dbe229814048e353666199f314f59c464d28ce00cbe036b5e270ccb&=&format=webp&quality=lossless&width=375&height=360" />
 <p align="center">
 ⌢⌢ ‎ ‎ ‎ . ‎ ‎ cuddle/cover ‎ me ‎ whenever  ╱ ‎ ‎ 𓎟𓎟 ‎ ‎ w2i‎  usually‎ ,‎  unles‎s i'm‎  online!‎  ‎ ‎ ‎ 、‎ ‎ ‎ ୨୧
 <p align="center">
