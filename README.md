@@ -8,11 +8,11 @@
 <p align="center">
 ⌢⌢ ‎ ‎ ‎ . ‎ ‎ cuddle╱cover ‎ me ‎ whenever  〃 ‎ ‎ 𓎟𓎟 ‎ ‎ w2i‎  usually‎ ,‎  unles‎s i'm‎  online!‎  ‎ ‎ ‎ 、‎ ‎ ‎ ୨୧
 <p align="center">
-love to all of my green names! <img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/557cd5e4-afc6-4a64-bccd-ca54c554158a" />
+love to all of my green names! 
 
 
 <p align="center">
-  <img width="200" height="200" alt="image" src="https://64.media.tumblr.com/16fe0b1940b781f4bc3e7b5b76fc3b6a/a8ab7cd365f55831-bc/s250x400/145d083effcb029fe1638b9407b92ecb91febc22.gifv" />
+  <img width="200" height="200" alt="image" src="https://64.media.tumblr.com/9a97d04d98ab284c1a5d7e2b44afe81b/1881390cbd6f2163-35/s500x750/3c9ea68c2c14511c81722486c3434fa0c086e12f.gifv" />
 
 <p align="center">
   <a href="https://whatsurnamegirlfriend.atabook.org/" target="_blank">ata</a>book .
