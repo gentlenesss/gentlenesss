@@ -1,13 +1,36 @@
 # ⋆˙⟡
-<p align="center">
-  <a href="https://whatsurnamegirlfriend.atabook.org/" target="_blank">
-    <img src="https://img.shields.io/badge/Atabook-%23662b2b?style=for-the-badge&logoColor=white" alt="Atabook">
+<div align="center">
+
+  <a href="https://whatsurnamegirlfriend.atabook.org/" target="_blank" style="text-decoration: none;">
+    <span style="
+      background-color: #662b2b;
+      color: white;
+      padding: 6px 14px;
+      border-radius: 8px;
+      font-family: sans-serif;
+      font-size: 14px;
+      display: inline-block;
+      margin: 2px;
+    ">Atabook</span>
   </a>
-  <span style="color:#ffffff; font-size:20px; margin:0 10px;">•</span>
-  <a href="https://theoceanhealssouls.carrd.co" target="_blank">
-    <img src="https://img.shields.io/badge/carrd-%23662b2b?style=for-the-badge&logoColor=white" alt="Carrd">
+
+  <span style="color: white; font-size: 18px; margin: 0 8px;">•</span>
+
+  <a href="https://theoceanhealssouls.carrd.co" target="_blank" style="text-decoration: none;">
+    <span style="
+      background-color: #662b2b;
+      color: white;
+      padding: 6px 14px;
+      border-radius: 8px;
+      font-family: sans-serif;
+      font-size: 14px;
+      display: inline-block;
+      margin: 2px;
+    ">carrd</span>
   </a>
-</p>
+
+</div>
+
 
 
 
