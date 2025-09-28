@@ -8,7 +8,7 @@
 <p align="center">
 ⌢⌢ ‎ ‎ ‎ . ‎ ‎ cuddle╱cover ‎ me ‎ whenever  〃 ‎ ‎ 𓎟𓎟 ‎ ‎ w2i‎ if i'm offtab  ‎  ‎ 𓏵  ‎ ‎ ‎ 、‎ ‎ ‎ ୨୧
 <p align="center">
-love to all of my green names! <img width="20" height="20" alt="image" src="https://64.media.tumblr.com/a3cbf40ae87922e1b2c9480e552f27ac/519df42a135a4ce1-b1/s75x75_c1/ab3ae2b1104b92ae4e5c33b16b477abc2966d8ec.gifv" />
+love for all of my green names! <img width="20" height="20" alt="image" src="https://64.media.tumblr.com/a3cbf40ae87922e1b2c9480e552f27ac/519df42a135a4ce1-b1/s75x75_c1/ab3ae2b1104b92ae4e5c33b16b477abc2966d8ec.gifv" />
 
 
 
