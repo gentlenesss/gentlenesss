@@ -1,6 +1,6 @@
 # ⋆˙⟡
 <p align="center">
-<img width="2048" height="330" alt="image" src="https://64.media.tumblr.com/b921c466430f7aa6f4509d516769f345/d083df8da3513e0a-84/s2048x3072/896528946492d3bdb78f47ff85586d3af791bb65.pnj" />
+<img width="4048" height="330" alt="image" src="https://64.media.tumblr.com/b921c466430f7aa6f4509d516769f345/d083df8da3513e0a-84/s2048x3072/896528946492d3bdb78f47ff85586d3af791bb65.pnj" />
 <p align="center">
 ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
 <p align="center">
