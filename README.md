@@ -6,7 +6,7 @@
 <p align="center">
 <img width="320" height="320" alt="image" src="https://media.discordapp.net/attachments/1406201432738365532/1421469835971264542/tuxpi.com.1758975142-removebg-preview.png?ex=68d92672&is=68d7d4f2&hm=2b0b9a451dbe229814048e353666199f314f59c464d28ce00cbe036b5e270ccb&=&format=webp&quality=lossless&width=375&height=360" />
 <p align="center">
-⌢⌢ ‎ ‎ ‎ . ‎ ‎ cuddle╱cover ‎ me ‎ whenever  〃 ‎ ‎ 𓎟𓎟 ‎ ‎ w2i‎  usually‎ ,‎  unles‎s i'm‎  online!‎  ‎ ‎ ‎ 、‎ ‎ ‎ ୨୧
+⌢⌢ ‎ ‎ ‎ . ‎ ‎ cuddle╱cover ‎ me ‎ whenever  〃 ‎ ‎ 𓎟𓎟 ‎ ‎ w2i‎ if i'm offtab or afk 𓏵  ‎ ‎ ‎ 、‎ ‎ ‎ ୨୧
 <p align="center">
 love to all of my green names! <img width="20" height="20" alt="image" src="https://64.media.tumblr.com/a3cbf40ae87922e1b2c9480e552f27ac/519df42a135a4ce1-b1/s75x75_c1/ab3ae2b1104b92ae4e5c33b16b477abc2966d8ec.gifv" />
 
