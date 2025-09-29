@@ -3,8 +3,8 @@
  <p align="center">
  ‎   ‎⭑  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎𓎠𓎠 ‎   ‎ ‎   ‎  . ‎ ‎   ‎   ‎ ‎   ‎   ‎ ‎   ‎   ‎ ‎  ‎ ‎   c + h  ‎  me ‎ ‎   ‎whenever  ‎   ‎ ‎   ‎you  ‎   ‎ ‎   ‎need  ‎ it ‎ ‎   ‎. ‎   ‎ ‎   ‎⌢⌢  ‎   ‎ ‎   ‎w2i  ‎   ‎ ‎   ‎if  ‎   ‎ ‎   ‎i'm  ‎   ‎ ‎   ‎offtab  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎,  ‎   ‎  ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ୨୧
 <p align="center">
-  <a href="https://whatsurnamegirlfriend.atabook.org/" target="_blank">ata</a>book .
-  <a href="https://theoceanhealssouls.carrd.co/" target="_blank">car</a>rd
+  <a href="https://whatsurnamegirlfriend.atabook.org/" target="_blank">ₐₜₐ</a>book .
+  <a href="https://theoceanhealssouls.carrd.co/" target="_blank">cₐᵣ</a>rd
 <p align="center">
 <p align="center">
 
