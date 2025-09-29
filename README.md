@@ -7,7 +7,7 @@
   <a href="https://theoceanhealssouls.carrd.co/" target="_blank">car</a>rd
 <p align="center">
 <p align="center">
-<img width="500" height="500" alt="image" src="https://media.discordapp.net/attachments/1406201432738365532/1422232957569204305/e5c7b7c3a3c4a7471d6ad1cad674e220-removebg-preview.png?ex=68dbed28&is=68da9ba8&hm=ffe199d5ff4968e49d07c49691c34925c1c4e4becc2df47e1bc9684be90fec85&=&format=webp&quality=lossless&width=638&height=849" />
+
 
 
 
