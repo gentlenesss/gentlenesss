@@ -1,5 +1,5 @@
 <p align="center">
-<img width="40" height="40" alt="image" src="https://github.com/user-attachments/assets/03ff25b8-ce80-4bba-9971-17a5b53dc80a" />
+<img width="48" height="48" alt="image" src="https://github.com/user-attachments/assets/03ff25b8-ce80-4bba-9971-17a5b53dc80a" />
 
 <p align="center">
   <a href="https://whatsurnamegirlfriend.atabook.org/" target="_blank">ata</a>book .
