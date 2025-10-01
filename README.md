@@ -6,9 +6,7 @@
   <a href="https://whatsurnamegirlfriend.atabook.org/" target="_blank">a</a>tabook .
   <a href="https://theoceanhealssouls.carrd.co/" target="_blank">c</a>arrd
 <p align="center">
-<p align="center">
-<p align="center">
-<img width="87" height="87" alt="image" src="https://media.discordapp.net/attachments/1406201432738365532/1422233308410023979/hello_Kitty_bow_png-removebg-preview.png?ex=68dde7bc&is=68dc963c&hm=d4f32bcbfe226b550e5d6bfa64c4560be6870201a6ad349c59ba6662830d359b&=&format=webp&quality=lossless&width=542&height=422" />
+<img width="87" height="87" alt="image" src="https://64.media.tumblr.com/b15945c8662684ae7ccd701ee5837fc7/75653e2d70049c8f-03/s250x400/88d78f1c746519bd7c1ef0487e02b59441b89355.pnj" />
 
 
 
