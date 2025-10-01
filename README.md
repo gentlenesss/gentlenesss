@@ -4,8 +4,8 @@
  ‎   ‎⭑  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎   ‎  ✦ .  ‎ ‎   ‎   ‎ ‎   ‎   ‎ ‎   ‎   ‎ ‎  ‎ ‎   c + h  ‎ me whenever‎ ‎   ‎. ‎   ‎ ‎   ‎︵︵  ‎  ‎   ‎ ‎‎   ‎𝘄2𝗶  ‎   ‎ ‎   ‎if  ‎   ‎ ‎   ‎i'm  ‎   ‎ ‎   ‎offtab  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎,  ‎   ‎  ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ୨୧
 
 <p align="center">
-   <a href="https://theoceanhealssouls.carrd.co/" target="_blank">c</a>arrd . sign
- <a href="https://whatsurnamegirlfriend.atabook.org/" target="_blank">a</a>tabook 
+  〢 <a href="https://theoceanhealssouls.carrd.co/" target="_blank">c</a>arrd ‿◞   ྀི
+ <a href="https://whatsurnamegirlfriend.atabook.org/" target="_blank">a</a>tabook ﾒ
 
 
 
