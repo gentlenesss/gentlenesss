@@ -4,7 +4,7 @@
  ‎   ‎⭑  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎   ‎  ✦ .  ‎ ‎   ‎   ‎ ‎   ‎   ‎ ‎   ‎   ‎ ‎  ‎ ‎   c + h me whenever  ‎ ‎   ‎ . ‎   ‎ ‎   ‎︵︵  ‎  ‎   ‎ ‎‎   ‎𝘄2𝗶  ‎   ‎ ‎   ‎if  ‎   ‎ ‎   ‎i'm  ‎   ‎ ‎   ‎offtab  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎,  ‎   ‎  ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ୨୧
 
 <p align="center">
-<img width="55" height="55" alt="image" src="https://64.media.tumblr.com/be4ca2f572b755abccd04e1af6dd48f8/c27c29e0f9f6e3be-2e/s75x75_c1/dc2cf18be408b27ca692f39e0ccf2c9ca08f66e5.gifv"\
+<img width="46" height="45" alt="image" src="https://64.media.tumblr.com/be4ca2f572b755abccd04e1af6dd48f8/c27c29e0f9f6e3be-2e/s75x75_c1/dc2cf18be408b27ca692f39e0ccf2c9ca08f66e5.gifv"\
  <p align="center">
   〢 <a href="https://theoceanhealssouls.carrd.co/" target="_blank">c</a>arrd ‿◞   ྀི
  <a href="https://whatsurnamegirlfriend.atabook.org/" target="_blank">a</a>tabook ୨ৎ
