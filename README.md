@@ -8,7 +8,7 @@
  <a href="https://whatsurnamegirlfriend.atabook.org/" target="_blank">a</a>tabook ୨ৎ
 
  <p align="center">
- <img width="320" height="320" alt="image" src="https://media.discordapp.net/attachments/1406201432738365532/1423366148782686398/9f95cafd79a2cdb8da36daaeef4e061d-removebg-preview.png?ex=68e00c86&is=68debb06&hm=fb54de1f61a6babd5b66f59b119355af182e1d20b9a25cd88dd55ae86cd1c94a&=&format=webp&quality=lossless&width=701&height=693" />
+ <img width="320" height="320" alt="https://media.discordapp.net/attachments/1406201432738365532/1423379409846403262/Screenshot_2025-10-02_205627-removebg-preview.png?ex=68e018e0&is=68dec760&hm=6653886c1565a11e8b4fc0af7ce4c9ce61103f507e0e55eb50d08e293eb4accc&=&format=webp&quality=lossless&width=1007&height=558" />
 
 
 
