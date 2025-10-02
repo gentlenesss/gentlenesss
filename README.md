@@ -4,7 +4,7 @@
  ‎   ‎⭑  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎   ‎  ✦ .  ‎ ‎   ‎   ‎ ‎   ‎   ‎ ‎   ‎   ‎ ‎  ‎ ‎   c + h me whenever  ‎ ‎   ‎ . ‎   ‎ ‎   ‎︵︵  ‎  ‎   ‎ ‎‎   ‎𝘄2𝗶  ‎   ‎ ‎   ‎if  ‎   ‎ ‎   ‎i'm  ‎   ‎ ‎   ‎offtab  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎,  ‎   ‎  ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ୨୧
 
 <p align="center">
- <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/bb3ef4fe-0263-453e-bc9a-ab38e95eba12" /> <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/a7f6a43b-7839-4304-9aba-42b3990154ca" />
+ <img width="55" height="55" alt="image" src="https://64.media.tumblr.com/be4ca2f572b755abccd04e1af6dd48f8/c27c29e0f9f6e3be-2e/s75x75_c1/dc2cf18be408b27ca692f39e0ccf2c9ca08f66e5.gifv"\
 
  <p align="center">
   〢 <a href="https://theoceanhealssouls.carrd.co/" target="_blank">c</a>arrd ‿◞   ྀི
