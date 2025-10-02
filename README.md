@@ -3,9 +3,8 @@
  <p align="center">
  ‎   ‎⭑  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎   ‎  ✦ .  ‎ ‎   ‎   ‎ ‎   ‎   ‎ ‎   ‎   ‎ ‎  ‎ ‎   c + h me whenever  ‎ ‎   ‎ . ‎   ‎ ‎   ‎︵︵  ‎  ‎   ‎ ‎‎   ‎𝘄2𝗶  ‎   ‎ ‎   ‎if  ‎   ‎ ‎   ‎i'm  ‎   ‎ ‎   ‎offtab  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎,  ‎  ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ୨୧
 <p align="center">
-  <img width="90" height="90" alt="https://media.discordapp.net/attachments/1406201432738365532/1423366148782686398/9f95cafd79a2cdb8da36daaeef4e061d-removebg-preview.png?ex=68e00c86&is=68debb06&hm=fb54de1f61a6babd5b66f59b119355af182e1d20b9a25cd88dd55ae86cd1c94a&=&format=webp&quality=lossless&width=701&height=693" />
-<p align="center">
-<img width="46" height="45" alt="image" src="https://64.media.tumblr.com/be4ca2f572b755abccd04e1af6dd48f8/c27c29e0f9f6e3be-2e/s75x75_c1/dc2cf18be408b27ca692f39e0ccf2c9ca08f66e5.gifv"\
+ <img width="320" height="320" alt="image" src="https://media.discordapp.net/attachments/1406201432738365532/1423366148782686398/9f95cafd79a2cdb8da36daaeef4e061d-removebg-preview.png?ex=68e00c86&is=68debb06&hm=fb54de1f61a6babd5b66f59b119355af182e1d20b9a25cd88dd55ae86cd1c94a&=&format=webp&quality=lossless&width=701&height=693" />
+ <p align="center">
  <p align="center">
   〢 <a href="https://theoceanhealssouls.carrd.co/" target="_blank">c</a>arrd ‿◞   ྀི
  <a href="https://whatsurnamegirlfriend.atabook.org/" target="_blank">a</a>tabook ୨ৎ
