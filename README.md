@@ -6,7 +6,7 @@
 𝜗ৎ
  
  <p align="center">
-<img width="320" height="320" alt="image" src="https://media.discordapp.net/attachments/1406201432738365532/1423379409846403262/Screenshot_2025-10-02_205627-removebg-preview.png?ex=68e018e0&is=68dec760&hm=6653886c1565a11e8b4fc0af7ce4c9ce61103f507e0e55eb50d08e293eb4accc&=&format=webp&quality=lossless&width=1007&height=558" />
+<img width="320" height="320" alt="image" src="https://media.discordapp.net/attachments/1406201432738365532/1423379409846403262/Screenshot_2025-10-02_205627-removebg-preview.png?ex=68e8aaa0&is=68e75920&hm=3ed5aace596c4a539885176ceeab9048c4cc4396cc5c3e092a361ccbe7eb8835&=&format=webp&quality=lossless&width=1007&height=558" />
 <p align="center">
  ⟢ ‎ ‎ ‎ ‎ ‎ ‎ ‎.〢 <a href="https://theoceanhealssouls.carrd.co/" target="_blank">c</a>arrd ‎ ‎ ‎ ‎ ‎ ‎ ‿◞   ྀི
  <a href="https://whatsurnamegirlfriend.atabook.org/" target="_blank">a</a>tabook ‎ .‎ ‎ ◞  ‎  ‎  
