@@ -10,7 +10,7 @@
 <p align="center">
  ⟢ ‎ ‎ ‎ ‎ ‎ ‎ ‎.〢 <a href="https://theoceanhealssouls.carrd.co/" target="_blank">c</a>arrd ‎ ‎ ‎ ‎ ‎ ‎ ‿◞   ྀི
  <a href="https://whatsurnamegirlfriend.atabook.org/" target="_blank">a</a>tabook ‎ .‎ ‎ ◞  ‎  ‎  
- <a href="https://en.pronouns.page/@gentlenessz" target="_blank">p</a>rns page ‎ ‎ ‎ ‎ ‎✶ ⭑𓂃
+
 
 
 
