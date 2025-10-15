@@ -1,6 +1,7 @@
 
 <p align="center">
- ⟢ ‎ ‎remaking ‎  ‎  
+<img width="586" height="426" alt="image" src="https://media.discordapp.net/attachments/1406201432738365532/1428090968758026330/Untitled82_20251015214330.png?ex=68f13cdb&is=68efeb5b&hm=fd990a5ac9fb6153a72e818a0dafb84dca775f52d495bcf50417289184198f04&=&format=webp&quality=lossless&width=879&height=639" />
+ 
 
 
 
