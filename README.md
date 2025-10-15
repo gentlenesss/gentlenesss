@@ -1,7 +1,6 @@
 
 <p align="center">
- ⟢ ‎ ‎ ‎ ‎ ‎ ‎ ‎.〢 <a href="https://theoceanhealssouls.carrd.co/" target="_blank">c</a>arrd ‎ ‎ ‎ ‎ ‎ ‎ ‿◞   ྀི
- <a href="https://whatsurnamegirlfriend.atabook.org/" target="_blank">a</a>tabook ‎ .‎ ‎ ◞  ‎  ‎  
+ ⟢ ‎ ‎remaking ‎  ‎  
 
 
 
