@@ -5,7 +5,7 @@
  <p align="center">
  ‎ ‎ ‎ ‎ ‎ ‎ ˒ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ৎ ‎ ‎ ‎ 
  <p align="center">
- ꒷꒦ C + H is always weclomed unless i'm with friends ݁ w2i if i'm offtab
+ 
 
   ‎ ‎ ‎ ‎ ‎ 
  ‎ 
