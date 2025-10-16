@@ -5,7 +5,7 @@
  <p align="center">
  ‎ ‎ ‎ ‎ ‎ ‎ ˒ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ৎ ‎ 
    <p align="center">
-    c+h is always welcomed‎ ‎  ‎ ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ w2i since im often offtab ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎‎ ,‎  ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎‎ ‎  ‎‎ ‎im very approachable, never be afraid to int or sit with me!! (*´▽`*)
+    c+h is ‎ ‎ always ‎ ‎‎  ‎ ‎‎  welcomed‎ ‎  ‎ ‎‎ ‎ ‎ ‎  ‎ (*´▽`*)‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ w2i since im often offtab ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎‎ ,‎  ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎‎ ‎  ‎‎
  <p align="center">
  ⟢ ‎ ‎ ‎  <a href="https://healingmywayoutofhere.carrd.co/#" target="_blank">c</a>arrd‎ ‎ ‎ ‎ ‎ ‎ ‎ ⭑𓂃
 ‎ ‎ ‎ ‎ ‎ ‎ ‎  <a href="https://whatsurnamegirlfriend.atabook.org/" target="_blank">a</a>tabook ‎ 
