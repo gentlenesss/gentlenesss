@@ -8,7 +8,7 @@
    <p align="center">
       ‎ ‎‎ ‎ ‎ ‎    ‎ ‎‎  ‎𝗰+𝗵 is ‎ ‎ always ‎ ‎‎  ‎ ‎‎  welcomed‎ ‎  ‎ ‎‎ ‎  ‎ 、 unless i'm with friends‎ ‎   ‎ ‎‎ ‎ ‎   ‎‎ ‎  ‎ ‎‎ ‎     ‎ ‎‎ ‎ ‎ ‎ ‎‎  ‎ ‎‎    ‎‎‎‎(*´▽`*) ‎‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎  ‎ ‎‎ ‎ ‎‎ 𝘄𝟮𝗶 is appreciated since i'm often 𝗼𝗳𝗳𝘁𝗮𝗯 ‎  ‎ ‎ ‎
      <p align="center">
-      ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ i'm 𝘀𝘂𝗽𝗲𝗿 approachable! do not be afraid to 𝗶𝗻𝘁 with me‎ , ‎ ‎ i'm 𝗮𝗹𝘄𝗮𝘆𝘀 open to make new friends <3‎ ‎ ‎ ‎  ‎ ‎‎  ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎‎ ‎  ‎‎
+      ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ i'm 𝘀𝘂𝗽𝗲𝗿 approachable! do not be afraid to  ‎ ‎ ‎𝗶𝗻𝘁  ‎ ‎ ‎with me‎ ‎ ‎ ‎  ‎ ‎‎  ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎‎ ‎  ‎‎
  <p align="center">
  ⟢ ‎ ‎ ‎  <a href="https://healingmywayoutofhere.carrd.co/#" target="_blank">c</a>arrd‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎  ‎⌢⌢ ‎‎ ‎ ‎ ‎‎ ‎ ‎
   ‎ ‎ ‎ ‎ ‎ ‎  <a href="https://whatsurnamegirlfriend.atabook.org/" target="_blank">a</a>tabook ‎ 
