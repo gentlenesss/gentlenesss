@@ -8,7 +8,10 @@
    <p align="center">
       ‎ ‎‎ ‎ ‎ ‎    ‎ ‎‎  ‎𝗰+𝗵 is ‎ ‎ always ‎ ‎‎  ‎ ‎‎  welcomed‎ ‎  ‎ ‎‎ ‎  ‎ 、 unless i'm with friends‎ ‎   ‎ ‎‎ ‎ ‎   ‎‎ ‎  ‎ ‎‎ ‎     ‎ ‎‎ ‎ ‎ ‎ ‎‎  ‎ ‎‎    ‎‎‎‎(*´▽`*) ‎‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎  ‎ ‎ ‎  ‎  ‎ ‎‎ ‎ ‎‎ 𝘄𝟮𝗶 is appreciated since i'm often 𝗼𝗳𝗳𝘁𝗮𝗯 ‎  ‎ ‎ ‎
      <p align="center">
-      ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ i'm 𝘀𝘂𝗽𝗲𝗿 approachable! do not be afraid to  ‎ ‎ ‎𝗶𝗻𝘁  ‎ ‎ ‎with me‎ ‎ ‎ ‎  ‎ ‎‎  ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎‎ ‎  ‎‎
+      ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ i'm 𝘀𝘂𝗽𝗲𝗿 approachable! do not be afraid to  ‎ ‎ ‎𝗶𝗻𝘁  ‎ ‎ ‎with me‎ ‎ ‎ ‎
+       <p align="center">
+      <img width="208" height="209" alt="image" src="https://media.discordapp.net/attachments/1406201432738365532/1429179234647146568/Untitled86_20251018214713.png?ex=68f53262&is=68f3e0e2&hm=146cc0f35c69af3f4d4586652c82c2d5128f16c7423a2ea0db3ce6d7f9219f38&=&format=webp&quality=lossless&width=1848&height=531" />
+‎ ‎‎  ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎‎ ‎  ‎‎
  <p align="center">
  ⟢ ‎ ‎ ‎  <a href="https://healingmywayoutofhere.carrd.co/#" target="_blank">c</a>arrd‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎  ‎⌢⌢ ‎‎ ‎ ‎ ‎‎ ‎ ‎
   ‎ ‎ ‎ ‎ ‎ ‎  <a href="https://whatsurnamegirlfriend.atabook.org/" target="_blank">a</a>tabook ‎ 
