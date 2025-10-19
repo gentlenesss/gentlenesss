@@ -2,7 +2,7 @@
  <p align="center">
  ‎ ‎ ‎ ‎ ‎ ‎ ˒ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ৎ ‎ 
   <p align="center">
-<img width="849" height="849" alt="image" src="https://media.discordapp.net/attachments/1406201432738365532/1429444404740886658/Untitled88_20251019152120.png?ex=68f62957&is=68f4d7d7&hm=e285941ab441749addc87cad232d445e2b4d9b614dc424988ab0d72f2d93fabf&=&format=webp&quality=lossless&width=849&height=849" />
+<img width="431" height="578" alt="image" src="https://media.discordapp.net/attachments/1406201432738365532/1429444451801104424/a54c655192a770cb1e652bfddbc4bebe-removebg-preview.png?ex=68f62963&is=68f4d7e3&hm=dbf49d632f1d12b7900eddc889e1dc1d505e07d6e04b8205f3b25737ad9c75aa&=&format=webp&quality=lossless&width=633&height=849" />
 
  ⟢ ‎ ‎ ‎  <a href="https://healingmywayoutofhere.carrd.co/#" target="_blank">c</a>arrd‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎  ‎⌢⌢ ‎‎ ‎ ‎ ‎‎ ‎ ‎
   ‎ ‎ ‎ ‎ ‎ ‎  <a href="https://whatsurnamegirlfriend.atabook.org/" target="_blank">a</a>tabook ‎ 
