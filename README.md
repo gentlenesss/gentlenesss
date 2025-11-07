@@ -1,7 +1,8 @@
 
 ‎ ‎
 <p align="center">
-  c+h encouraged ㅤㅤㅤㅤㅤw2i preferred‎ 
+<img width="40" height="40" alt="image" src="https://github.com/user-attachments/assets/b039c767-e5d5-4a76-a389-e6aa0c00e151" />
+
 
 
 <p align="center">
