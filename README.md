@@ -1,7 +1,7 @@
 
 ‎ ‎
 <p align="center">
-<img width="296" height="296" alt="image" src="https://i.pinimg.com/originals/0f/98/94/0f98945b2e149f2ce4f9e2d72a324562.gif" />
+<img width="296" height="296" alt="image" src="https://i.pinimg.com/1200x/9e/94/a1/9e94a1b2a5b48c4dfec44b57ff011188.jpg" />
 
 
 
