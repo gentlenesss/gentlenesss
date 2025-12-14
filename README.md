@@ -6,6 +6,7 @@
     <div align="center">
   <i>don't be shy to interact !!</i> 
   </sub>
+</div>
 
 <p align="center">
   <sub>
