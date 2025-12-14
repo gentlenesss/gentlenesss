@@ -8,12 +8,10 @@
   </sub>
 </div>
 
-<p align="center">
-  <sub>
-    <a href="https://whatsurnamegirlfriend.atabook.org/">guestbook</a> ·
-    <a href="https://yenyenyene.carrd.co/">carrd</a> ·
-    <a href="https://en.pronouns.page/@yenyen">pronouns</a>
-  </sub>
+<div align="center">
+  <a href="https://whatsurnamegirlfriend.atabook.org/">●</a>
+  <a href="https://yenyenyene.carrd.co/">●</a>
+  <a href="https://en.pronouns.page/@yenyen">●</a>
 </div>
 
   ‎ ‎ ‎ ‎ ‎ 
