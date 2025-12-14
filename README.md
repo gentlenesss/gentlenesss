@@ -7,7 +7,7 @@
   <i>don't be shy to interact !!</i> 
   </sub>
 
-<div align="center">
+<p align="center">
   <sub>
     <a href="https://whatsurnamegirlfriend.atabook.org/">guestbook</a> ·
     <a href="https://yenyenyene.carrd.co/">carrd</a> ·
