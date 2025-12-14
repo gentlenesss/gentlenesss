@@ -13,7 +13,7 @@
 </div>
 <div align="center">
   <a href="https://whatsurnamegirlfriend.atabook.org/">ata</a>|ㅤㅤ ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-  ㅤㅤ ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href="https://yenyenyene.carrd.co/">carrd</a>|
+  ㅤㅤ ㅤㅤ ㅤㅤㅤㅤ<a href="https://yenyenyene.carrd.co/">carrd</a>|
  ㅤㅤ ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://en.pronouns.page/@yenyen">prns page</a>
 </div>
 
