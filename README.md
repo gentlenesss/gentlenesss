@@ -4,7 +4,7 @@
   <sub>
  <i>sit/cuddle with me whenever! <b>often offtab</b>, w2i appriciated .</i>
     <div align="center">
-  <i>don't be shy to interact .</i> 
+  <i>don't be shy to interact !!</i> 
   </sub>
 
   ‎ ‎ ‎ ‎ ‎ 
