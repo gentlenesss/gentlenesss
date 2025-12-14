@@ -3,7 +3,8 @@
 <div align="center">
   <sub>
  <i>sit/cuddle with me whenever! often offtab, w2i appriciated .</i>
-     <i>don't be shy to interact! always open to interact .</i> 
+    <div align="center">
+  <i>don't be shy to interact! always open to interact .</i> 
   </sub>
 
   ‎ ‎ ‎ ‎ ‎ 
