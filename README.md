@@ -8,7 +8,7 @@
   </sub>
 </div>
     <div align="center">
-<img width="1836" height="527" alt="image" src="https://github.com/user-attachments/assets/b03a9340-a075-4827-9365-045c45cef644" />
+<img width="86" height="87" alt="image" src="https://github.com/user-attachments/assets/b03a9340-a075-4827-9365-045c45cef644" />
 </div>
 <div align="center">
   <a href="https://whatsurnamegirlfriend.atabook.org/">ata</a> .
