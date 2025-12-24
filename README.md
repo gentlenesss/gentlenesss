@@ -13,7 +13,7 @@
 </div>
 <div align="center">
   <a href="https://whatsurnamegirlfriend.atabook.org/">ata</a>ㅤㅤ ㅤㅤㅤ                  ㅤㅤ ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-  ㅤㅤ<a href="https://moonriverandme.carrd.co/">carrd</a> ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ𝜗ৎ
+  ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ𝜗ৎ
  ㅤㅤ ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://en.pronouns.page/@yenyen">prns page</a>
 </div>
 
